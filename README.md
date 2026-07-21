@@ -2,7 +2,7 @@
 - 👀 I’m interested in tech especially web development, mobile development, and game development
 - 🌱 I’m currently learning programming about web development
 - 💞️ I’m looking to collaborate on project
-- 📫 How to reach me u can find my ig account @ezy.io8
+- 📫 How to reach me u can find my ig account @re.zy8
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i'm newbie in tech
 
